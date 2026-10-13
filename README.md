@@ -1,0 +1,1 @@
+Presentation slides for the opening lecture by Ippeita Dan for the Education Course of fNIRS 2026 Macau. As all the contents have been obtained from published work, the contents can be referred to or reproduced upon citation basis. Remember to cite them from the original articles.
